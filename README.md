@@ -1,1 +1,1 @@
-# [web site](https://soorria.com)
+# [website](https://soorria.com)
